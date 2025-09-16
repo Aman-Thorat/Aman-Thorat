@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **amanthorat3@gmail.com**
 
-- 📄 Know about my experiences [/Users/amanthorat/Library/Mobile Documents/com~apple~CloudDocs/Important Documents/Aman's Resume.pdf](/Users/amanthorat/Library/Mobile Documents/com~apple~CloudDocs/Important Documents/Aman's Resume.pdf)
+- 📄 Know about my experiences [My Resume!](https://docs.google.com/document/d/10jxyTohMqiHngg4Qi1edgz9oJNWulOHp7EwP9MjS4Ns/edit?usp=drive_link)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
